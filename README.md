@@ -1,0 +1,1 @@
+*Note: The owners of this organization no longer go to chesterton community college. Should any student or teacher at chesterton wish to be given access to this organization, please contact me via my email `skyler3665@gmail.com`*
